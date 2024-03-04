@@ -1,0 +1,3 @@
+This website is all about laws, it help those peoples who have to face challanges,if they stuck in the situations and thought that they can't get out of it, but there are many ways to get rid of those problems,
+this website have features to directly interact with the lawyers,
+many more things to get updated.....
